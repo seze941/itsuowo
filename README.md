@@ -1,4 +1,4 @@
 # hello, world
-im itsuo, just another person in your computer  
+im GAY, just another SCHIZO in your computer  
 learning javascript, python and c++  
-likes stargazing, astrophysics and firearms  
+likes stargazing, astrophysics and firearms AND MEN
